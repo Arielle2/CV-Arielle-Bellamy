@@ -1,6 +1,6 @@
 # CV Ariel la petite sirène
 
-![Ariel la petite sirène](http://assets.stickpng.com/images/5a4bc3132da5ad73df7efe58.png)
+![Ariel la petite sirène](https://www.pngkit.com/png/full/393-3938030_mermaid-png-transparent-images-la-petite-sirne-book.png)
 
 Je suis une exploratrice des fonds marins.
 
