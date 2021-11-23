@@ -12,7 +12,7 @@ J'ai été la princesse d'un grand royaume.
 
 ## Qualités
 - je sais très bien nager
-- je suis curieurse
+- je suis curieuse
 - je suis ambitieuse
 - je sais bien chanter
 - j'aime les animaux
